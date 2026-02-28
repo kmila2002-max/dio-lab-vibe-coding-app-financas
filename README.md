@@ -113,3 +113,7 @@ com lógica definida, identidade visual e foco no usuário.
 
 Vibe Coding me ensinou que a IA não substitui o pensamento --- ela
 amplia quando sabemos guiá-la.
+
+<img width="1905" height="936" alt="image" src="https://github.com/user-attachments/assets/3a50552e-66b3-40fe-83e5-ffbe2b9da5b6" />
+<img width="1904" height="928" alt="image" src="https://github.com/user-attachments/assets/c64d0a13-58c2-4534-b859-8be0aba5f634" />
+
